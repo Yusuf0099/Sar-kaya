@@ -1,0 +1,2 @@
+# Sar-kaya
+Mavi tik
